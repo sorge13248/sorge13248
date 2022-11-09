@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **contact@francescosorge.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/sorgefrancesco97](https://www.linkedin.com/in/sorgefrancesco97)
+- 📄 Know about my experiences [https://www.linkedin.com/in/fsorge](https://www.linkedin.com/in/fsorge)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
